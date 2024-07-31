@@ -3,7 +3,9 @@ Code whispers to life, Danilo
 Fingers dance on keys and screens,
 Dreams in every line.
 
-
+Hello team
+Thank you for the help
+Good luck
 
 
 
